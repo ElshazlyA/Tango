@@ -37,6 +37,10 @@ The lead and follow mirror each others steps. The lead begins with the left foot
 4. Step back and to the left with your left foot
 5. Right foot close to left foot
 
+## Shoes
+
+You need a specific tango shoe to be able to dance. 
+
 ## Video on YouTube
 In the following video Leon and Kim will show you slowly and from all angles how it's done. Ready, bend your knees, go: 
 
